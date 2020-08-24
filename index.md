@@ -8,8 +8,7 @@ More and more people are succumbing to disinformation campaigns on social media.
 3. **Spread the word** so we can build this community.
 
 ### Rules of Engagement
-- Be respectful.
-- Be concise.
+- Be respectful and concise.
 - Subjective statements should be kept to a minimum.
 - Objective claims needs to have a web citation.
 - Try to limit yourself to 1-2 sentences per citation.
