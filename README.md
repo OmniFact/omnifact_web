@@ -1,4 +1,4 @@
-## Welcome to the OmniFact.org repo!
+## Welcome to the OmniFact.org repo! :hugs:
 
 If you're looking for the front-end, it can be found at [OmniFact.org](https://omnifact.org). If you're looking to create content, you've come to the right place.
 
