@@ -1,4 +1,5 @@
-More and more people are succumbing to disinformation campaigns on social media. Watching friends and family fall victim to this manipulation is heartbreaking.:cry:  
+More and more people are succumbing to disinformation campaigns on social media. Watching friends and family fall victim to this manipulation is heartbreaking.:cry:
+
 **We are here to support you with an open-source, collaborative media kit.**
 
 ### Get Involved
