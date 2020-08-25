@@ -24,7 +24,7 @@ Progressives do not see pedophilia as a sexual orientation.
 Wearing of masks does not make children more vulnerable. That's a naive take on how human trafficking works.  
 [https://pcaiowa.org/does-wearing-a-mask-make-children-more-vulnerable-to-sex-trafficking/](https://pcaiowa.org/does-wearing-a-mask-make-children-more-vulnerable-to-sex-trafficking/)
 
-Donald Trump has also been implicated in the Epstein scandal, along with his personal lawyer Alan Dershowitz. William Barr also has connections to Epstein.  
+Donald Trump has longtime ties with Epstein, and his personal lawyer Alan Dershowitz has been implicated. William Barr also has connections to Epstein. 
 [https://filmdaily.co/news/jeffrey-epstein-donald-trump/](https://filmdaily.co/news/jeffrey-epstein-donald-trump/)
 
 To this day, he continues to wish the best for Ghislaine Maxwell.  
