@@ -18,3 +18,4 @@ More and more people are succumbing to disinformation campaigns on social media.
 ### Posts
 
 - [#SaveOurChildren is Politicizing Child Welfare](/save-our-children-is-politicizing-child-welfare/)
+- [Police are supporting vigilantes in Kenosha, WI](/vigilantes-in-kenosha)
