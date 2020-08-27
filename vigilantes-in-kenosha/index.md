@@ -1,28 +1,30 @@
-As patriots, we need to take a stand against injustice within our borders and attacks carried out against our citizens.
-
-If you support responsible law enforcement, I'm with you.
-
-I believe MANY COPS ARE TRYING TO PROTECT AND SERVE THEIR COMMUNITY, but blindly supporting "Back the Blue", and staying silent on corruption, negligence, and abuses of power, is shameful and anti-American.
+If you read this post, and you still don't think we need meaningful police reform, please reply for a deeper conversation. Under the circumstances, I think that's a fair request.
 
 Jacob Blake was shot in the back 7 times, in front of his children, after breaking up a fight.  
 [https://www.youtube.com/watch?v=NS5cSwVEyDg](https://www.youtube.com/watch?v=NS5cSwVEyDg)
 
-A right-wing militia drove in from Illinois to confront the protesters who were demanding accountability. The police THANKED the armed vigilantes and offered them water.  
-[https://twitter.com/AFriendlyDad/status/1298510289197916160?s=20](https://twitter.com/AFriendlyDad/status/1298510289197916160?s=20)
+The Kenosha killer received supplies and support from the police.  
+[https://twitter.com/AFriendlyDad/status/1298510289197916160?s=09](https://twitter.com/AFriendlyDad/status/1298510289197916160?s=09)
 
-Later that night, one of these agitators, a 17-year old illegally open-carrying a firearm, was standing on the front lines, instigating violence. He shot three people and two of them died.  
+The underage child, openly and illegally carrying a firearm, was told where to go.  
+[https://twitter.com/carterforva/status/1298595003283968000?s=19](https://twitter.com/carterforva/status/1298595003283968000?s=19)
+
+He began instigating violence and picking fights. He shot three people and two of them died.  
 [https://www.tmz.com/2020/08/26/kenosha-shooting-2-dead-1-injured-jacob-blake-protest-police-blm/](https://www.tmz.com/2020/08/26/kenosha-shooting-2-dead-1-injured-jacob-blake-protest-police-blm/)
 
-The killer walked directly past the police following the shootings and THEY DID NOTHING.
+And... after he shot three people in plain view, the police didn't even attempt to arrest him, and he was allowed to leave the scene.  
+[https://twitter.com/tariqnasheed/status/1298556876804612096?s=09](https://twitter.com/tariqnasheed/status/1298556876804612096?s=09)
+
+The timeline is well documented and indicates some amount of coordination between the police and a vigilante militia.  
+[https://chicago.cbslocal.com/2020/08/26/kenosha-shooting-video-shows-suspected-gunman-kyle-rittenhouse-being-allowed-to-leave-scene/](https://chicago.cbslocal.com/2020/08/26/kenosha-shooting-video-shows-suspected-gunman-kyle-rittenhouse-being-allowed-to-leave-scene/)
+
+Take a moment and think about the gravity of this incident, how much it illustrates the problems we face in this country, and the motivations behind these protests in the first place.
+
+If you think this is acceptable, and systemic racism doesn't exist... I don't even care if I know you. Please jump in and explain yourself.
 
 We must come together, speak out against vigilante justice, and stand up for the Constitution and the rule of law.
 
-This is not a new issue. Tamir Rice, a 12 year old boy who was playing with a toy gun in a public park, was shot within two seconds of police involvement.  
-[https://www.youtube.com/watch?v=7rfVjh5RtVY](https://www.youtube.com/watch?v=7rfVjh5RtVY)
-
-The officer served no time.
-
-There are countless other examples.  
+There are countless other examples of police involvement in unjustified shootings, with the attackers not serving any time.
 [https://interactive.aljazeera.com/aje/2020/know-their-names/index.html](https://interactive.aljazeera.com/aje/2020/know-their-names/index.html)
 
 If you are silent, you are complicit. We must stand up for what is right, and honor those whose lives have been lost.
