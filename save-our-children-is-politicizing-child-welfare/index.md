@@ -4,10 +4,7 @@ In order to #SaveTheChildren or #SaveOurChildren, it is imperative that we don't
 
 ### Let's talk about what's real.
 
-Sexual abuse is rampant in Hollywood.[^1]
-
-Many powerful political figures from both parties, including Bill Clinton, are implicated in Epstein's operation.  
-[https://www.cnbc.com/2019/07/22/jeffrey-epsteins-black-book-trump-clintons-prince-andrew.html](https://www.cnbc.com/2019/07/22/jeffrey-epsteins-black-book-trump-clintons-prince-andrew.html)
+Sexual abuse is rampant in Hollywood.[^1] Many powerful political figures from both parties, including Bill Clinton, are implicated in Epstein's operation.[^2]
 
 Donald Trump authorized $35,000,000 of grants to combat human trafficking. A lot of great organizations received funding.  
 [https://apnews.com/89347d1b618ab522ec6d13aa114f4e92](https://apnews.com/89347d1b618ab522ec6d13aa114f4e92)
@@ -41,3 +38,5 @@ We can beat human trafficking, but we should do so with integrity and collaborat
 
 
 [^1]: https://www.usatoday.com/story/life/people/2018/02/20/how-common-sexual-misconduct-hollywood/1083964001/
+ 
+[^2]: https://www.cnbc.com/2019/07/22/jeffrey-epsteins-black-book-trump-clintons-prince-andrew.html
