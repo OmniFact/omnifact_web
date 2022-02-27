@@ -4,7 +4,7 @@ In order to #SaveTheChildren or #SaveOurChildren, it is imperative that we don't
 
 ### Let's talk about what's real.
 
-Sexual abuse is rampant in Hollywood.  
+Sexual abuse is rampant in Hollywood.[^1]
 [https://www.usatoday.com/story/life/people/2018/02/20/how-common-sexual-misconduct-hollywood/1083964001/](https://www.usatoday.com/story/life/people/2018/02/20/how-common-sexual-misconduct-hollywood/1083964001/)
 
 Many powerful political figures from both parties, including Bill Clinton, are implicated in Epstein's operation.  
@@ -39,3 +39,6 @@ Yes, there are videos of Biden being creepy, just as there are videos of Trump b
 [https://www.nbcnews.com/tech/tech-news/qanon-looms-behind-nationwide-rallies-viral-hashtags-n1237722](https://www.nbcnews.com/tech/tech-news/qanon-looms-behind-nationwide-rallies-viral-hashtags-n1237722)
 
 We can beat human trafficking, but we should do so with integrity and collaboration, not manipulative and divisive fear-mongering.
+
+
+[^1]: My reference.
