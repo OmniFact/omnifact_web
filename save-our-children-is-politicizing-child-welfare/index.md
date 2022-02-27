@@ -2,7 +2,7 @@
 
 In order to #SaveTheChildren or #SaveOurChildren, it is imperative that we don't fall victim to propaganda and use this important child welfare issue as political theater. Our children deserve so much more than that.
 
-### First, let's talk about what's real.
+### Let's talk about what's real.
 
 Sexual abuse is rampant in Hollywood.  
 [https://www.usatoday.com/story/life/people/2018/02/20/how-common-sexual-misconduct-hollywood/1083964001/](https://www.usatoday.com/story/life/people/2018/02/20/how-common-sexual-misconduct-hollywood/1083964001/)
